@@ -1,1 +1,1 @@
-# SinifiGe-meDurumu
+# SinifiGecmeDurumu
